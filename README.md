@@ -2,7 +2,7 @@
 
 ## OPPORTUNITY & SERVICES PROFILE
 
-**INNOCENT DEUSDEDIT**
+**INNOCENT **
 Cybersecurity Graduate | Network Security | SOC & Defensive Security
 
 ### PROFESSIONAL INTRODUCTION
