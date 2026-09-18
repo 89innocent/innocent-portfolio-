@@ -118,7 +118,7 @@ I understand that cybersecurity work requires confidentiality, authorization, re
 **Email:** [innocentdeusdedit@gmail.com]
 **Phone/WhatsApp:** [+255 744 771 797]
 **LinkedIn:** [https://www.linkedin.com/in/innocent-deusdedit-188329350]
-**GitHub:** [http]
+**GitHub:** [https://github.com/89innocent.git]
 
 ---
 
